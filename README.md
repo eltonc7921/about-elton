@@ -10,7 +10,7 @@ High School of Telecommunications Arts and Technology
 
 **Bio:**
 
-My name is Elton. I like rainbows. 
+My name is Elton. 
 
 **Schedule:**
 
